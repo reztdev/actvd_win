@@ -1,1 +1,1 @@
-# actvd_win
+# Aktivasi Windows dan Microsoft
